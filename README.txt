@@ -12,7 +12,7 @@ you can use for pretty much whatever.
 
 Feedback, bug reports, and comments are not only welcome, but strongly encouraged :)
 
- arpan.nbanerjee7@gmail.com
+ saurabhtalreja19@gmail.com
 
 
 
